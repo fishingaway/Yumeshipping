@@ -3,6 +3,10 @@ Hello! This is my Yumeshipping Respository. If you do not support yumeshipping, 
 
 
 
+I do not harass, dehumanize, or doxx my doubles. I usually ignore them or tell them that their yumeship is canon and then move on. I do not have any means in discriminizing __anyone__ under any circumstances whatsoever. Please do not take the negative internet propaganda about yumeshipping for granted. Not __all__ yumeshippers are like that, but some are. I advise you to stay away / watch out for those kinds of yumeshippers.
+
+
+
 
 
 
@@ -10,7 +14,8 @@ Hello! This is my Yumeshipping Respository. If you do not support yumeshipping, 
 
 ### Guido Mista - JoJo's Bizarre Adventure
 
-Selective-sharing, Romantic.
+Selective-sharing, Romantic. 
+
 
 ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
