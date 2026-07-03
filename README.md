@@ -34,3 +34,6 @@ Nonsharing, Romantic.
  ### Yukako Yamagishi - JoJo's Bizarre Adventure
 
 Nonsharing, Romantic.
+
+. ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
+
