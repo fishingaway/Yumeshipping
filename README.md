@@ -3,24 +3,24 @@ Hello! This is my Yumeshipping Respository. If you do not support yumeshipping, 
 
 
 
-## Guido Mista - JoJo's Bizarre Adventure
+### Guido Mista - JoJo's Bizarre Adventure
 
 Selective-sharing, Romantic.
 
 
 
-## Leone Abbacchio - JoJo's Bizarre Adventure
+### Leone Abbacchio - JoJo's Bizarre Adventure
 
 Voidsharing/Nonsharing, Romantic.
 
 
 
-## Jotaro Kujo - JoJo's Bizarre Adventure
+### Jotaro Kujo - JoJo's Bizarre Adventure
 
 Nonsharing, Romantic.
 
 
 
-## Yukako Yamagishi - JoJo's Bizarre Adventure
+### Yukako Yamagishi - JoJo's Bizarre Adventure
 
 Nonsharing, Romantic.
