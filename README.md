@@ -12,7 +12,7 @@ Hello! This is my Yumeshipping Respository. If you do not support yumeshipping, 
 
 Selective-sharing, Romantic.
 
-. ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
+ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
  ### Leone Abbacchio - JoJo's Bizarre Adventure
 
@@ -24,7 +24,7 @@ Voidsharing/Nonsharing, Romantic.
 
 Nonsharing, Romantic.
 
-. ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
+ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
  ### Yukako Yamagishi - JoJo's Bizarre Adventure
 
